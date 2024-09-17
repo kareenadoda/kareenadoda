@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @kareenadoda. I am a Computer Science sophomore at Rutgers University, and also a part of the Honors College.
-- 👀 I’m interested in Product Management! My last summer internship helped me realise this.
+- 👀 I’m super interested in Product Management- my summer internship helped me realise this!
 - 🌱 I’m currently learning Computer Architecture in college, and trying to solidify my Java skills.
 - 📫 How to reach me: Please email at @kareena.doda@rutgers.edu !!
 - 😄 Pronouns: she/her
