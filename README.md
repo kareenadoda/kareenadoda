@@ -2,7 +2,7 @@
 - 👀 I’m super interested in Product Management- my freshman year summer internship helped me realise this!
 - 🌳 I worked as an SDE Intern at Amazon in New York, for my sophomore summer.
 - 🌱 I’m currently learning Software Methodology, and trying to get deeper into projects.
-- 📫 How to reach me: Please email at @kareena.doda@rutgers.edu !!
+- 📫 How to reach me: Please email at @kareenadoda5@gmail.com !!
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: My entire extended Family's last name is Dodeja, it's just my parents, sister and I who are DODAS!!
 
